@@ -10,7 +10,7 @@ Seattle has a variety of neighborhoods with unique offerings in each. A list of 
 - Capitol Hill
 - South Lake Union
 
-A full list can be found at [this website](https://visitseattle.org/things-to-do/neighborhoods/
+A full list can be found at [this website](https://visitseattle.org/things-to-do/neighborhoods/)
 
 Please enjoy the following pictures:
 
